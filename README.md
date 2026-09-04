@@ -1,2 +1,3 @@
-# Apocalypse-Watchers
-analog horror my beloved...
+Coming from the Straw.Page? Okay, I don't think I need to explain this to you.
+Coming from somewhere else, or sped through the sites like an idiot? I've got you.
+Alright, so our story starts with Grian. Yes, that Grian. The one with the red jumper. He made this SMP, Evolutions, which you can look up on your own time 'cause I've no clue. But the important bit is the Watchers, the sort of, ehh... I wanna say Gods of the world? But, I'm not sure. Anyway, they're killable. And Writer's decided to hunt every last one of those bastards to extinction. But he can't, see. The Listeners and Speakers will just mutate their offspring into exact replicas of the Watchers. So he's decided, "Hey, why not kill them all?" And he's a craaazy son of a gun for that idea. We need Watchers. And that's where you come in. Don't stop him, don't even try! Just watch him (ha), and report back to me. Capishe?
